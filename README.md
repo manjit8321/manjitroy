@@ -7,7 +7,7 @@
 - 🛠  My last work project was Lift&Shift Azure Migration at Accenture.
 - 🌱  The brain fascinates me and you had me at Artificial Intelligence.
 - 🌱  THE DREAM IS ALIVE.
-- ✉️  You can email me at manjitroy8321@gmail.com.
+- ✉️  You can email me at manjitroy8321@gmail.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
